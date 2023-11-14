@@ -1,2 +1,2 @@
 # my-100Daysofcodeschallange
-6000 minutes of weird nonsense.😌
+144000 minutes of weird nonsense.😌
